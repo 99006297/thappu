@@ -1,2 +1,2 @@
 # thappu
-my slef thapaswibolisetty
+my self thapaswibolisetty
